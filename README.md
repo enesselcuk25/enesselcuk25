@@ -25,9 +25,6 @@
 </a>
 
 
-![](https://visitor-badge.glitch.me/badge?page_id=0bithemant.8bithemant)
-
-
 #### -👨🏻‍💻 I am like to learn in new technologys, 
 
 #### - 🎮 I am like table tennis game 
