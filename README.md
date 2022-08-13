@@ -28,7 +28,7 @@
 
 #### -👨🏻‍💻 I am like to learn in new technologys, 
 
-#### - 🎮 I am like table tennis game 
+#### - 🎮 Ping pong
 
 #### - 📫 how to reach me enesselcu25@gmail.com 
 
